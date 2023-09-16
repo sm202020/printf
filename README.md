@@ -1,1 +1,1 @@
-Team Project by me and my partner
+Team Project by me and my partner by Smith and Chinenye
